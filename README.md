@@ -1,4 +1,4 @@
    Mariory Sharisa Acevedo Santos 
-   #Karol Andrea  Dominguez
+   #Karol Andrea  Dominguez,
    6to administración
    
